@@ -1,1 +1,1 @@
-# [It's my life.](dogehk.github.io)
+# [It's my life.](https://dogehk.github.io/index.html)
